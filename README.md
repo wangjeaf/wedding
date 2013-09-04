@@ -1,4 +1,3 @@
 wedding
 =======
-
-try something new
+orz...
